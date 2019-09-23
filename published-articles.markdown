@@ -1,0 +1,14 @@
+---
+title: Published Articles
+date: 2019-09-22 21:55:00 -05:00
+---
+
+This page contains links to my published articles. I will update this page periodically.
+
+### The Scout — Bradley University, Peoria, IL
+
+[Cable TV or cable streaming](https://www.bradleyscout.com/voice/cable-tv-or-cable-streaming/) Sept. 6, 2019
+
+### The Westerner — Maine West High School, Des Plaines, IL
+
+[Warrior Way - Mascot Has to Live by School Values ](https://www.yumpu.com/en/document/fullscreen/56915638/september-2016)*[AND](https://www.yumpu.com/en/document/fullscreen/56915638/september-2016)*[ Fire Up the Crowd (pp. 11)](https://www.yumpu.com/en/document/fullscreen/56915638/september-2016) Sept. 26, 2016
