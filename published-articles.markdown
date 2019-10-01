@@ -7,6 +7,8 @@ This page contains links to my published articles. I will update this page perio
 
 ### The Scout — Bradley University, Peoria, IL
 
+[The real cost of the digital age](https://www.bradleyscout.com/voice/the-real-cost-of-the-digital-age/) Sept. 27, 2019
+
 [Cable TV or cable streaming](https://www.bradleyscout.com/voice/cable-tv-or-cable-streaming/) Sept. 6, 2019
 
 ### The Westerner — Maine West High School, Des Plaines, IL
