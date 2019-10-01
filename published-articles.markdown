@@ -13,4 +13,4 @@ This page contains links to my published articles. I will update this page perio
 
 ### The Westerner — Maine West High School, Des Plaines, IL
 
-[Warrior Way - Mascot Has to Live by School Values ](https://www.yumpu.com/en/document/fullscreen/56915638/september-2016)*[AND](https://www.yumpu.com/en/document/fullscreen/56915638/september-2016)*[ Fire Up the Crowd (pp. 11)](https://www.yumpu.com/en/document/fullscreen/56915638/september-2016) Sept. 26, 2016
+[Warrior Way - Mascot Has to Live by School Values *AND* Fire Up the Crowd (pp. 11)](https://www.yumpu.com/en/document/fullscreen/56915638/september-2016) Sept. 26, 2016
