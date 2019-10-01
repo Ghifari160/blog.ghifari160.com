@@ -6,7 +6,7 @@ tags:
 - license
 ---
 
-**Update #1** Oct 1, 2019
+**Update #1** Oct 1, 2019\
 I have begun the drafting process of the license. As of now, the license is still untitled. If you would like to help me select an appropriate name for the license, feel free to take this [Test Group Questionnaire](https://g16.click/2o3z9c2)
 
 Last night, during my nightly "I need to read something to fall asleep" routine, I learned that a large open source project made the move to block I.C.E. contributors from ever using their project. It inspired me to do the same. I don't care what your political alignment is, the way I.C.E. treat their detainees is not how you should treat even the worst of criminals, let alone mere immigrants seeking asylum.
